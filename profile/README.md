@@ -1,12 +1,5 @@
 # India vs Pakistan Cricket Match Today: Live Updates and Timing
 
-**Slug:** india-vs-pakistan-cricket-match-today-live-updates-and-timing  
-
-**Meta Description:** Get the latest updates on today's India vs Pakistan cricket match, including live streaming details, timing, and expert analysis. Stay tuned for an exciting showdown between two cricketing giants in 2025!  
-
-**Focus Keyword:** match today  
-
----
 
 ## The Anticipation Builds: India vs Pakistan Clash Today  
 
